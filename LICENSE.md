@@ -1,4 +1,4 @@
-# 
+# نهائي bot تداول التحكيم أدوات for Mac OS | احترافي bot تداول التحكيم أدوات for PC Windows. Featuring تحليل الزخم and مجموعات السيولة DEX — optimized for maximum performance.
 
 
 
